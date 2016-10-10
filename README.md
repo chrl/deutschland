@@ -1,2 +1,2 @@
-# deutschland
-Blog about how we are moving to Deutschland
+# Deutschland
+Blog about us and what we met while moving to Deutschland
